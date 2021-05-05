@@ -1,0 +1,1 @@
+# brighterschool_minna
